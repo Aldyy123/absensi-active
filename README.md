@@ -2,5 +2,3 @@
 
 Penulisan
 
-- Nama Peserta
-Ricky Bayu Putra
