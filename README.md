@@ -34,6 +34,6 @@ Penulisan
 - Selviatun Hasanah
 - Richard Pradana
 - usamah
-
+- Taqiyuddin Ja'far
 
 
